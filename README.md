@@ -24,6 +24,7 @@ i<img width="640" height="152" alt="1000003670" src="https://github.com/user-att
 //  2  cuddling is accepted if you ask. (I always say yes, dont be shy just give me a heads up.) 
 
 //  3   dont be the guy that says "omg you're my favorite character!" do not treat me like I'm fictional it's offensive. 
+
 //   4  Alfred's playhouse fans and Nazis are another thing I'm not okay with I don't care how you justify it. 
 
 <img width="640" height="152" alt="1000003670" src="https://github.com/user-attachments/assets/bb8dc467-8299-4597-8d92-0036bd233104" />
